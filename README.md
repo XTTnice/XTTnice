@@ -1,0 +1,4 @@
+- 👋 I’m @XTTnice
+- 👀 Interested in VLM and AutoDrive and Cycling and So on
+- 🌱 learning VLM now
+- 📫 e-mail:2279303684@qq.com
